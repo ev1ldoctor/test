@@ -1,2 +1,2 @@
-#Hello, my babe!
-#ULLLLLL
+#ИСТОРИЧЕСКОЕ ДЕРЬМО, ДАМЫ И ГОСПОДА 
+#WOOOOOOOOW!
